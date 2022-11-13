@@ -11,7 +11,7 @@
 
 - 💬 Ask me about **Python,AI,Meachine Learning**
 
-- 📫 How to reach me **1998chetiwal@gmail.com**
+- 📫 How to reach me **vinodchetiwal@yahoo.com**
 
 - ⚡ Fun fact **i am shopaholic**
 
